@@ -1,4 +1,6 @@
-# KINS-4-CONCEPTS-OF-PHYSICAL-FITNESS-WELLNESS
+# KINS-4-CONCEPTS-OF-PHYSICAL-FITNESS-WELLNESS:
+
+Objectives & Content:
 https://catalog.foothill.edu/course-outlines/KINS-4/
 
 https://foothillcollege.instructure.com/eportfolios/5038
